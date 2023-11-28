@@ -1,5 +1,5 @@
-- 👋 Hi, I’m ... tu sabe le ne?
-- 👀 Estou enteresada em... passa de ano ne?
+- 👋 привет/privet!
+- 👀 Estou enteresado em aprende russo/japones/ingles pra assistir sem legenda
 - 🌱 Atualmente estou aprendendo coisas
 - 💞️ I Have GF
 - 📫 ?
