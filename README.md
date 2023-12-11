@@ -1,5 +1,5 @@
 - 👋 привет/privet!
-- 👀 Estou enteresado em aprende russo/japones/ingles pra assistir sem legenda
+- 👀 Estou enteresado em aprender russo/japones/ingles pra assistir sem legenda
 - 🌱 Atualmente estou aprendendo coisas
 - 💞️ I Have GF
 - 📫 ?
