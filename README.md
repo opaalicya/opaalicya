@@ -3,7 +3,6 @@
 - 🌱 Atualmente estou aprendendo coisas
 - 💞️ I Have GF
 - 📫 ?
-- F Boni, um grande anao russo, melhor hamister que ja tive... tb e o primeiro ne? sentiremos sua falta
 
 ![29bad975dab33454063576de2560b0c9](https://github.com/opaalicya/opaalicya/assets/142051991/6e25bada-6de2-4e39-8554-22160557e1eb)
 
