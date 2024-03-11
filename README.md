@@ -7,8 +7,7 @@
 
 ![ink-sans](https://github.com/opaalicya/opaalicya/assets/142051991/281ab90b-875f-4fb6-b347-be6ef49f513f)
 
-![Uploading hazbinhotel-angel-dust.gif…]()
-
+![hazbinhotel-angel-dust](https://github.com/opaalicya/opaalicya/assets/142051991/96de833b-34a5-4f12-9b7b-b3afc60e4fa2)
 
 <!---
 opaalicya/opaalicya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
