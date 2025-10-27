@@ -7,6 +7,7 @@
 ![ink-sans](https://github.com/opaalicya/opaalicya/assets/142051991/281ab90b-875f-4fb6-b347-be6ef49f513f)
 
 
+![happy-dance-dance](https://github.com/user-attachments/assets/40e034d7-cba9-44cd-b893-69b8566ff0a4)
 
 
 <!---
