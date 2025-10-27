@@ -6,7 +6,9 @@
 
 ![ink-sans](https://github.com/opaalicya/opaalicya/assets/142051991/281ab90b-875f-4fb6-b347-be6ef49f513f)
 
-![murder-drones-v-from-murder-drones](https://github.com/user-attachments/assets/71fccc44-64a9-4e05-8fda-ed67eb15ff13)
+<img width="220" height="282" alt="image" src="https://github.com/user-attachments/assets/d653163d-41de-4880-81fe-031768c501c6" />
+
+
 
 <!---
 opaalicya/opaalicya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
