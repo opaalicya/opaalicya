@@ -6,7 +6,7 @@
 
 ![ink-sans](https://github.com/opaalicya/opaalicya/assets/142051991/281ab90b-875f-4fb6-b347-be6ef49f513f)
 
-(https://tenor.com/pt-BR/view/happy-dance-dance-stimming-tmnt-teenage-mutant-ninja-turtles-gif-26440087)
+
 
 
 <!---
